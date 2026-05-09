@@ -1,4 +1,4 @@
-
+Experience sol's rng like never before with sol's rng Script smart, the #1 Script. Includes auto-sell and custom skins for unbeatable performance.
 
 
 
